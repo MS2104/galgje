@@ -13,3 +13,4 @@
 * a - toch wel goed LOLOL
 * l - fout
 * e - fout
+* O like the amount of bithes i have
