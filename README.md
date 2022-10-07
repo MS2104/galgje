@@ -15,3 +15,4 @@
 * e - fout
 * O like the amount of bithes i have - is het even jouw geluks dag want die is WEL correct
 * S - goed gg
+* T foor tieten
