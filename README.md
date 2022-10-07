@@ -18,3 +18,5 @@
 * T  - correct, jullie komen best wel dichtbij ngl
 * D - fout
 * boomstam
+
+ok het woord is geraden gefeliciteerd woooooo
