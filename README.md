@@ -2,7 +2,7 @@
 
 ## Te raden woord
 
-|.|o|o|.|s|.|a|.|
+|.|o|o|.|s|t|a|.|
 |-|-|-|-|-|-|-|-|
 |1|2|3|4|5|6|7|8|
 
@@ -15,4 +15,4 @@
 * e - fout
 * O like the amount of bithes i have - is het even jouw geluks dag want die is WEL correct
 * S - goed gg
-* T foor tieten
+* T foor tieten - correct, jullie komen best wel dichtbij ngl
