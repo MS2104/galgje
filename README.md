@@ -2,7 +2,7 @@
 
 ## Te raden woord
 
-|.|o|o|.|s|t|a|.|
+|B|o|o|m|s|t|a|m|
 |-|-|-|-|-|-|-|-|
 |1|2|3|4|5|6|7|8|
 
@@ -13,7 +13,8 @@
 * a - toch wel goed LOLOL
 * l - fout
 * e - fout
-* O like the amount of bithes i have - is het even jouw geluks dag want die is WEL correct
+* O - is het even jouw geluks dag want die is WEL correct
 * S - goed gg
-* T foor tieten - correct, jullie komen best wel dichtbij ngl
+* T  - correct, jullie komen best wel dichtbij ngl
 * D - fout
+* boomstam
