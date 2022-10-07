@@ -7,7 +7,7 @@
 |1|2|3|4|5|6|7|8|
 
 ## Score
-![gallow](./images/2.png)
+![gallow](./images/3.png)
 
 ## Beurten
 * a - toch wel goed LOLOL
@@ -16,4 +16,4 @@
 * O like the amount of bithes i have - is het even jouw geluks dag want die is WEL correct
 * S - goed gg
 * T foor tieten - correct, jullie komen best wel dichtbij ngl
-* D
+* D - fout
