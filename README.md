@@ -2,7 +2,7 @@
 
 ## Te raden woord
 
-|.|o|o|.|.|.|a|.|
+|.|o|o|.|s|.|a|.|
 |-|-|-|-|-|-|-|-|
 |1|2|3|4|5|6|7|8|
 
@@ -14,4 +14,4 @@
 * l - fout
 * e - fout
 * O like the amount of bithes i have - is het even jouw geluks dag want die is WEL correct
-* S
+* S - goed gg
